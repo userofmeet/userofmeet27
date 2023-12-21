@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Meet Jain
-- 👀 I’m interested in Digital Circuit Designing
-- 🌱 I’m currently studying Electronics and Communication at Dharmsinh Desai Univeristy, Nadiad
-- 💞️ I’m looking to collaborate on industrial collaboration
-- 📫 How to reach me ...Linkedin
+-  Hi, I’m Meet Jain
+-  I’m interested in Digital Circuit Designing
+-  I’m currently studying Electronics and Communication at Dharmsinh Desai Univeristy, Nadiad
+-  I’m looking to collaborate on industrial collaboration
+-  How to reach me ...Linkedin
