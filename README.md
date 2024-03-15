@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/drive/folders/1hlaHpxEATrzDAkakgD_kuz4olecbKibD](https://drive.google.com/drive/folders/1hlaHpxEATrzDAkakgD_kuz4olecbKibD)
 
-- 📄 Resume **https://drive.google.com/file/d/1YCWqmmNuAKSuaaQ45zl-0SK68gB8fu9U/view?usp=sharing**
+- 📄 Resume **[https://drive.google.com/file/d/1YCWqmmNuAKSuaaQ45zl-0SK68gB8fu9U/view?usp=sharing](https://drive.google.com/file/d/1h0OOMmTdcXmRUfqC5bq6H_rrf3wN3GtO/view?usp=sharing)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
